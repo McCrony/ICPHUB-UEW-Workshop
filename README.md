@@ -7,5 +7,4 @@ Purpose: Introduce students to blockchain, decentralised applications and Motoko
 ### Prince Junior Baah-Acheamfour
 ### Index Number: 202123679
 ### Contact: 0243771396
-### EmailP Price Junior Baah-Acheamfour
-
+### Email: Princejunior664@gmail.com
